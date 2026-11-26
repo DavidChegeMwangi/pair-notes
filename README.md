@@ -1,2 +1,2 @@
 # pair-notes
-Favourite food: Ugali Samaki
+Favourite food: Fish Ugali
