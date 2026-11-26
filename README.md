@@ -1,2 +1,2 @@
 # pair-notes
-Favourite food: Chapo Beef
+Favourite food: Chapo Beef / Mursik
