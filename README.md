@@ -1,2 +1,2 @@
 # pair-notes
-Favourite food: Fish Ugali
+Favourite food: Mursik
